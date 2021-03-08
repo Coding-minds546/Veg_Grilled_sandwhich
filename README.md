@@ -1,0 +1,1 @@
+these are veg grilled sandwhichs. They are completely veg and jain. They are quick to make, yummy and can be made anytime of the day,week or year !!! ONLY 7 STEPS !!! You can also store them for later. they stay good for about 4-5 hours.
